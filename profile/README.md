@@ -2,6 +2,8 @@
 
 **Are you ready to test your reflexes in the most *crazy*, *addictive*, and *endless* adventure ever?** Dive into the pixelated chaos of **Crossy Road Unblocked** – a *hyper casual* game where your mission is simple: **Run, dodge, and survive**!
 
+## <a href="https://1kb.link/fT2jHJ">👉 Click To Play Crossy Road Unblocked 👈</a>
+
 ---
 
 ### 🎮 **What Is Crossy Road?**
